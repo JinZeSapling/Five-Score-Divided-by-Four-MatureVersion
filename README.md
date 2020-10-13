@@ -10,6 +10,7 @@ M版部分翻译：金泽_Sapling
 原网址
 
 T版[https://www.fimfiction.net/story/93383)
+
 M版[https://www.fimfiction.net/story/130808)
 
 译者语：
